@@ -13,7 +13,7 @@
 
 - 📫 Feel free to reach out at **mariazareef10@gmail.com**.
 
-- ⚡ Fun fact: I help students with their FYP.
+- ⚡ Fun fact: I love crafting creative and visually stunning designs that make an impact! 🚀.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
